@@ -1,0 +1,1 @@
+https://blog.codeshare.me/2023/12/discord-vanity-url-sniper-usage.html
